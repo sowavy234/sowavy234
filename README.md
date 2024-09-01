@@ -1,10 +1,9 @@
 - 👋 Hi, I’m @sowavy234 
-- 👀 I’m interested in ... learning alot
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ... i love reptiles
+- 👀 godly
+- 🌱 wavy
+- 💞️ love
+- 😄 king
+- ⚡ i love reptiles
 
 <!---
 sowavy234/sowavy234 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
