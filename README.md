@@ -1,6 +1,6 @@
 - waspopin 🦴
 - BURBERRY ✂️
-  - Ghost 👻
+- Ghost 👻
 - KING 👑
 - ⚡ i love reptiles
 <!---
